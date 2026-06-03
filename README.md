@@ -1,1 +1,0 @@
-# GTM-product-portfolio
